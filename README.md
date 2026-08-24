@@ -1,1 +1,0 @@
-# MindMesh-26-publicity
